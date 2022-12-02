@@ -1,2 +1,2 @@
 # Dilosyldrm.github.io
-Cv
+Cv ödevi
